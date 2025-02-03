@@ -53,7 +53,7 @@ Stay tuned for registration details and ticket information.
 
 ## Contact
 
-For inquiries, please email: techsummit2025@example.com
+For inquiries, please email: shubham160600@gmail.com
 
 ## Contributing
 
